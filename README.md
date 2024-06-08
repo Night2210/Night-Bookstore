@@ -1,7 +1,7 @@
 Shop information
 
 Owner:
-Mr. Ash (Exquisite 3-star Michelin star bakery chef)
+Mr. Ash (Owner of Night's Bookstore)
 
 Time open:
 Sunday-Friday : 9am-6pm
